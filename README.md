@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @donlohkusing
+- 👀 I’m interested in finding new things that i dont know
+- 🌱 I’m currently learning 
+- 💞️ I’m looking to collaborate 
+- 📫 How to reach me ........................???
+- ⚡ Fun fact: ..............................???
